@@ -18,6 +18,7 @@
 - 💬 Ask me about **Java ,Cybersecurity**
 
 - 📫 How to reach me **gangadharimouneesh@gmail.com**
+- ⚡ Fun fact I'll improve ChatGPT by using my mistakes
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
